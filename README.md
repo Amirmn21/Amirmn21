@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Amirmn21
+- 👀 I’m interested in coding
+- 📫 How to reach me insta: amirmn.21
